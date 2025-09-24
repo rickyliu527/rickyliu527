@@ -1,4 +1,4 @@
-# Ricky
+# INFO
 I'm Ricky.
 
 🚀 Experience
