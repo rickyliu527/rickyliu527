@@ -1,5 +1,11 @@
-# INFO
 I'm Ricky.
 
-🚀 Experience
+Experience
+
 Projects
+
+Chic-a-Job | View on Github
+
+Surakarta Chess | 
+
+CalH2O | View on Github
